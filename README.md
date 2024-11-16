@@ -2,7 +2,7 @@
 
 **`Software Engineer(Explorer/Developer/Innovator)`**
 
-A Creative Engineer passionate about leveraging technology to tackle real-world challenges. I thrive on exploring emerging technologies and staying ahead in the ever-evolving tech landscape. I enjoy collaborating with like-minded individuals to craft innovative solutions, turning complex problems into opportunities for growth and impact. When I’m not coding, I’m diving into new ideas, sharpening my skills, and contributing to projects that make a difference. Let’s connect and build something amazing together! 🚀
+A Creative Engineer passionate about leveraging technology to tackle real-world challenges. I thrive on exploring emerging technologies and staying ahead in the ever-evolving tech landscape. I enjoy collaborating with like-minded individuals to craft innovative solutions, turning complex problems into opportunities for growth and impact. When I’m not coding, I’m diving into new ideas, sharpening my skills, and contributing to projects that make a difference. Let’s connect and build something amazing!🚀
 
 
 ## 🌐 Socials:
